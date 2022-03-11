@@ -1,4 +1,4 @@
-# João Gabriel Nunes Carnevale :octocat:
+# João Gabriel Carnevale :octocat:
 
 ### About:
 Hello visitor, I'm João Gabriel.
